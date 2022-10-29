@@ -1,3 +1,3 @@
 # Rad Dads Wiki
 
-[FAQ](FAQ.md)
+- [FAQ](FAQ.md)
