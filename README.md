@@ -9,3 +9,7 @@ Birth certificates need to be ordered - but wait a few days until the hospital h
 
 ## Pumps
 Most insurance plans cover hospital grade pumps. Many people feel the difference is worth it
+
+## Gear 
+Our favorite hiking backpack: https://www.osprey.com/us/en/product/poco-POCOCHS20.html 
+good for 16 lbs - 48 lbs
